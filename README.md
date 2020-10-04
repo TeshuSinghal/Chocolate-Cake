@@ -1,0 +1,1 @@
+The recipe is of chocolate cake made using cocoa powder and many other ingredients. Chocolate cake is a cake of chocolate flavour. It can be categorised as a snack or desert.
